@@ -8,7 +8,7 @@
 ╚═╝     ╚═╝╚══════╝   ╚═╝   ╚═╝  ╚═╝╚═╝     ╚═╝  ╚═╝ ╚═════╝ ╚═╝  ╚═╝
 
 
-Programmer, consultant, technical account manager, snowboarder, motorcyclist, typography enthusiast.
+Programmer, consultant, technical account manager, snowboarder, motorcyclist, podcaster, typography enthusiast.
 
 ```
 
